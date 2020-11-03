@@ -1,0 +1,1 @@
+# InformmaticaAplicata-Lab6
